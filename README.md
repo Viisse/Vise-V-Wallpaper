@@ -1,0 +1,1 @@
+This file should contain a black picture with my profile picture in the middle. This is meant to be a wallpaper for you to use if you would like to. I first made it for my own personal use for discord. But I made it public for everybody.
